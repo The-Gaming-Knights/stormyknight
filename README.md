@@ -1,1 +1,0 @@
-The web release of the Stormy Knight by the Gaming Knights group
